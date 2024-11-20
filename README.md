@@ -1,2 +1,2 @@
-# my-project
+# barbara-maia
 web &amp; graphic designer
